@@ -1,4 +1,4 @@
-![](joih.jpg)
+![](Screenshot 2023-06-02 104520.png)
 ### Hi there 👋
 #### ribbit
 :frog: check my work!  https://dig-dug.github.io/portfolio/ 
